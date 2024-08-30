@@ -17,4 +17,4 @@ Answer the questions below
 * Ask Mr. Vu anything:
 * List your sports and extracurriculars you participate in
 
-Em thich cai lop 
+em chan qua, minh dung lai nha
